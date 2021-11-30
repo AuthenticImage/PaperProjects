@@ -1,7 +1,7 @@
 
 # "Images of Paper" by: Authentic Image
 
-## It's a structural collection of images from the notes that are in circulation on the 21st century in the United States. There will NOT be anymore minting for this collection.
+## It's a structural collection of images from the notes that are in circulation on the 21st century in the United States. 
 
 
 # Twitter Account: https://twitter.com/imagesofpaper
